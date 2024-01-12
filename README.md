@@ -1,4 +1,4 @@
- Hi I go by benefactor/feather or neil
+ Hi I go by alot of names, call me by my display for now^-^
  I'm in multiple fandoms
 
 - You can reach me from my discord
